@@ -6,7 +6,7 @@
 - 😄 Pronouns: She/ Her
 - ⚡ Fun fact: I am scared of earthlings 
 
-![image](https://github.com/user-attachments/assets/d15a12c4-f9a5-427d-a6cd-03f64ea49a29)
+![image]([https://github.com/user-attachments/assets/d15a12c4-f9a5-427d-a6cd-03f64ea49a29](https://giphy.com/gifs/thecodingspacerd-code-coding-eatsleepcode-VTtANKl0beDFQRLDTh))
 
 <!---
 Sisamkele022/Sisamkele022 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
