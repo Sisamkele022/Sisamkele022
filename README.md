@@ -5,7 +5,8 @@
 - 📫 You can contact me via my email which is sisamkelevava2gmail.com
 - 😄 Pronouns: She/ Her
 - ⚡ Fun fact: I am scared of earthlings 
-![image](https://github.com/user-attachments/assets/35d16098-0346-4c7e-9c86-0dc9f4de75d8)
+
+![image](https://github.com/user-attachments/assets/d15a12c4-f9a5-427d-a6cd-03f64ea49a29)
 
 
 <!---
