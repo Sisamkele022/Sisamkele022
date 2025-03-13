@@ -5,6 +5,8 @@
 - 📫 You can contact me via my email which is sisamkelevava2gmail.com
 - 😄 Pronouns: She/ Her
 - ⚡ Fun fact: I am scared of earthlings 
+![image](https://github.com/user-attachments/assets/35d16098-0346-4c7e-9c86-0dc9f4de75d8)
+
 
 <!---
 Sisamkele022/Sisamkele022 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
