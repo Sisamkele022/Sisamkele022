@@ -2,7 +2,7 @@
 - 👀 I’m interested in empowering solutions through code.
 - 🌱 I’m currently learning COBOL Mainframe development.
 - 💞️ I’m looking to collaborate on anything that you believe that is groundbreaking, count me in. I promise that we will make a great team.
-- 📫 You can contact me via my email which is Sisamklevava2gmail.com
+- 📫 You can contact me via my email which is sisamkelevava2gmail.com
 - 😄 Pronouns: She/ Her
 - ⚡ Fun fact: I am scared of earthlings 
 
